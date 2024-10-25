@@ -1,15 +1,11 @@
 # dcuo-remake
 dcuo hack remake 
 
-https://www.youtube.com/watch?v=AFpi6rVo1sQ
+https://www.youtube.com/watch?v=vF3yvkNEbaM&t=270s
 
-https://discord.gg/b6y7ZBX63x
+https://discord.gg/tvUFQ7sZBt
 
-10/16/2024
+10/25/2024
 Updated:
 
-![image](https://github.com/user-attachments/assets/d8ff54b9-33c9-46b8-a76d-a8601654e03d)
-
-
-
-![5l9xu3ibk2jvabzpdi92qdqq77md (1)](https://github.com/user-attachments/assets/ed7b4309-ca8c-4b9e-bdf4-4d1099978e5f)
+![Untitled](https://github.com/user-attachments/assets/a768314a-a889-4fbc-9b40-7d8b47b51e61)
